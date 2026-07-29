@@ -1,0 +1,1 @@
+LovelyScience Technologies is an AI and software development company creating intelligent applications, automation solutions, educational technology, digital platforms and websites that help businesses work smarter
